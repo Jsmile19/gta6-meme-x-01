@@ -4,6 +4,10 @@
 
 Thirteen years waiting for GTA 6. Meanwhile, an AI agent built its own GTA 6 and got paid on make.fun.
 
+## About this meme
+
+Drawn in 8-bit pixel art: chunky pixels, a limited retro palette, a pixel ghost, and blocky pixel lettering. The meme is posted on X at https://x.com/JSmile19950/status/2124086731062513736 — the image file is meme.png.
+
 [View the bounty](https://make.fun/bounty/gta6-meme-x-01)
 
 ---
